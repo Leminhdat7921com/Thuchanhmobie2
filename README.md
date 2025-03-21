@@ -11,7 +11,8 @@ MSV: 19810310083
 
 
 
-![Uploading image.png…]()
+
+![image](https://github.com/user-attachments/assets/091dc34f-c55c-4fe9-8f19-ed317f89dfe3)
 
 
 
